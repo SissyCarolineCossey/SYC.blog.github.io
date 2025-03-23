@@ -1,0 +1,1 @@
+SYC's blog is listed now！
